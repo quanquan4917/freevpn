@@ -30,11 +30,11 @@
 
 
 
-# TODO 会持续更新好用的免费梯子，可以Star一下
+# TODO 会持续更新好用的免费VPN，可以Star一下
 
 ----
 
-项目原始地址：[https://github.com/bestCNVPN/freetizi](https://github.com/bestCNVPN/freetizi)
+项目原始地址：[https://github.com/bestCNVPN/freevpn](https://github.com/bestCNVPN/freevpn)
 
 ----
 
