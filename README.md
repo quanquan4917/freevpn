@@ -3,16 +3,16 @@
 🍀🍀🍀 免费VPN 🍀🍀🍀 免费时长VPN，免费好用的翻墙梯子VPN软件 免费科学上网VPN工具 海外加速器VPN 国外vpn
 
 
-# 1.Panda梯子 [Panda官网地址](https://www.panhdpe.xyz/r/22216799)
+# 1.PandaVPN [Panda官网地址](https://www.panhdpe.xyz/r/22216799)
 ✅ 后起之秀，有中文团队，对中国地区的支持也非常好
 
 ✅ 3天免费试用，尽情体验网络的速度、稳定性，决定是否购买
 
-✅ 无流量限制，ECC超强加密，
+✅ 无流量限制，ECC超强加密
 
 ✅ 7天无理由退款，在亚洲地区非常受欢迎。隐私保护极好，注册甚至不需要邮箱
 
-# 2.Ivacy梯子 [Ivacy官网地址](https://www.ivacykodi.com/easter-deal-2020/?aff=91814&data1=excellent&data2=freetizi)
+# 2.IvacyVPN [Ivacy官网地址](https://www.ivacykodi.com/easter-deal-2020/?aff=91814&data1=excellent&data2=freetizi)
 ✅ 美国的品牌，在外网的评价非常好，TOP5的水平
 
 ✅ 网速很快，2019年的行业对比排第一
@@ -21,7 +21,7 @@
 
 ✅ 30天无理由退款
 
-# 3.Nord梯子   [Nord官网地址](https://go.nordlocker.net/aff_c?offer_id=15&aff_id=38201&url_id=6063&aff_sub=github&aff_click_id=freetizi)
+# 3.NordVPN   [Nord官网地址](https://go.nordlocker.net/aff_c?offer_id=15&aff_id=38201&url_id=6063&aff_sub=github&aff_click_id=freetizi)
 ✅ 推荐，曾被评为No.1，超强加密，服务器节点5000+，不记录日志，2048位加密超强隐私保护。
 
 ✅ 最多人再次购买的梯子工具，近期有超值2年套餐
